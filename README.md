@@ -1,0 +1,1 @@
+# Informasi-Tanah-Nagari-Sungai-Duo2
